@@ -1,4 +1,4 @@
-[content://media/external/downloads/1000102645]
+
 stuff u might wanna know before u int
 
 I don't like racist jokes, Epstein jokes, adult jokes or anything adult/sexual related humour.
